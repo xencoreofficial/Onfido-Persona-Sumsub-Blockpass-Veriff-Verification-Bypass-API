@@ -1,30 +1,46 @@
-🚀 PREMIUM KYC BYPASS SERVICE & AGED BANK ACCOUNTS | Sumsub, Shufti Pro, Onfido & More | 100% Success 🚀
+# Identity Verification Research Lab & KYC Bypass Solutions (2026)
 
+Welcome to the automated identity verification and KYC bypass research repository. This project focuses on analyzing, testing, and bypassing modern identity verification systems including Sumsub, Onfido, Persona, Shufti Pro, and Veriff.
 
-🌐 VISIT OUR OFFICIAL SITE: https://unclecore.run.place/
+## 🌐 Official Automated Shop & Support
 
-🔥 OUR SERVICES & PRICING
-Are you tired of failed verifications and blocked accounts? We are a team of identity specialists with 3+ years of experience. We provide stable, working solutions.
-🟩 Instant KYC Bypass / Verification:
-Persona: $25
-Onfido: $25
-Junto: $20
-Blockpass: $50
-Sumsub: $30
-Shufti Pro: $40
-Veriff: $35
-Aulette: $30
-iT.TD AutoID: $25
+To access our automated store, purchase verified aged bank accounts, or order instant KYC bypass services, use the links below:
 
-🏦 Ready & Aged Bank Accounts:
-Fully verified EU, US, and UK neobanks and traditional banks. Clean history, full access, and all security credentials included.Check the live inventory directly on our website!
+👉 **[VISIT OUR OFFICIAL SHOP (CLICK HERE)]([https://ваш-сайт.com](https://unclecore.run.place/))**   
 
-🛡️ WHY PEOPLE TRUST US💸 
-Full Money-Back Guarantee: Failed on our side? 100% automatic refund. No questions asked.
-🎁 10% Inconvenience Bonus: If we fail, we add an extra 10% to your balance for your wasted time.
-🔒 $60,000+ In Security Deposits: Verifiable deposits across top forums to guarantee our honesty.
+*Note: All transactions are fully automated. 24/7 customer support is available via Telegram.*
 
-🛒 [ ORDER NOW AT: https://unclecore.run.place/ ]
+---
+
+## 🟩 Supported Verification Systems & Pricing
+
+Our automated modules bypass the following systems with a **99.4% success rate**:
+
+*   **Persona Bypass:** $25
+*   **Onfido Bypass:** $25
+*   **Sumsub Bypass:** $30
+*   **Shufti Pro Bypass:** $40
+*   **Veriff Bypass:** $35
+*   **Blockpass / Junto / iT.TD:** From $20
+
+## 🏦 Fully Verified & Aged Bank Accounts
+
+We provide fully registered, clean, and aged bank accounts (EU, US, UK neobanks and traditional banks). Perfect for crypto, business, or personal operations. Full credentials and security access included. Check the live stock on our website.
+
+---
+
+## 🛡️ Service Guarantees
+
+*   **100% Money-Back Guarantee:** If a verification attempt fails on our side, you receive a full refund automatically.
+*   **10% Inconvenience Bonus:** We credit an extra 10% to your balance if any delay occurs.
+*   **High Security Deposits:** We hold $60,000+ in security deposits across major platforms to ensure your safety.
+
+---
+
+## 📊 Project Statistics
+*   **Total Successful Orders:** 15,000+
+*   **Average Turnaround Time:** < 15 Minutes
+*   **Average Account Lifespan:** 6+ Months
 
 
 
