@@ -6,7 +6,7 @@ Welcome to the automated identity verification and KYC bypass research repositor
 
 To access our automated store, purchase verified aged bank accounts, or order instant KYC bypass services, use the links below:
 
-👉 ** VISIT OUR OFFICIAL SHOP: https://unclecore.duckdns.org/
+👉 ** VISIT OUR OFFICIAL SHOP: https://unclebypass.duckdns.org/
 
 *Note: All transactions are fully automated. 24/7 customer support is available via Telegram.*
 
